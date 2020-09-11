@@ -13,3 +13,5 @@ https://aerofarms.com/technology/
 https://grabcad.com/library/spray-nozzle-4#
 
 https://grabcad.com/library/spiral-flow-spray-nozzle#
+
+https://101growlights.com/best-hydroponic-trays/
