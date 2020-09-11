@@ -19,3 +19,5 @@ https://101growlights.com/best-hydroponic-trays/
 https://github.com/3dponics/Drip-3Dponics
 
 https://101growlights.com/best-hydroponic-trays/
+
+https://www.3dponics.com/wiki/instructions-drip-system/
