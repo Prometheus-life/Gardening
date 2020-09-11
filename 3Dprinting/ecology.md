@@ -11,3 +11,5 @@ https://gardenerdy.com/aeroponics-vs-hydroponics/
 https://aerofarms.com/technology/
 
 https://grabcad.com/library/spray-nozzle-4#
+
+https://grabcad.com/library/spiral-flow-spray-nozzle#
