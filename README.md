@@ -12,4 +12,4 @@ Hydrophonics removes the soil medium and uses a nutrient based liquid to provide
 
 ## [Aerophonics](https://en.wikipedia.org/wiki/Aeroponics)
 
-Aerophonics is a subset of hydrophonics that will use misters or drippers to provide the nutrient liquid to the roots of the plant. With the right automation, this form of agriculture will provide the highest yield while providing little need for maintenance.
+Aerophonics is a subset of hydrophonics that will use misters or drippers to provide the nutrient liquid to the roots of the plant. With the right automation, this form of agriculture will provide the highest yield while providing little need for maintenance. It allows provides for continuous exposure of oxygen to the roots which is essential for plant growth.
