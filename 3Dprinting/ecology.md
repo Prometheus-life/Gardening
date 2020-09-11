@@ -5,3 +5,5 @@ https://agrotonomy.com/tower-garden-aeroponic-strawberry/
 https://gardenerdy.com/aeroponics-vs-hydroponics/
 
 https://aerofarms.com/technology/
+
+https://grabcad.com/library/spray-nozzle-4#
