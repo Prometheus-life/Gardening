@@ -1,5 +1,9 @@
 https://www.opensourceecology.org/gvcs/gvcs-machine-index/
 
+https://wiki.opensourceecology.org/wiki/Main_Page
+
+https://wiki.opensourceecology.org/wiki/Compressed_Air_Water_Pump#Assembly_Diagram
+
 https://agrotonomy.com/tower-garden-aeroponic-strawberry/
 
 https://gardenerdy.com/aeroponics-vs-hydroponics/
