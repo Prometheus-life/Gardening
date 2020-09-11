@@ -10,6 +10,6 @@ Geophonics is the most basic form of agriculture. It uses soil as a medium and i
 
 Hydrophonics removes the soil medium and uses a nutrient based liquid to provide sustenance for the plants. This typically requires maintenance in the form of ensuring that the roots of the plants don't become oversoaked in water and need dry time for healthy roots.
 
-## Aerophonics
+## [Aerophonics](https://en.wikipedia.org/wiki/Aeroponics)
 
 Aerophonics is a subset of hydrophonics that will use misters or drippers to provide the nutrient liquid to the roots of the plant. With the right automation, this form of agriculture will provide the highest yield while providing little need for maintenance.
