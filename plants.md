@@ -1,5 +1,7 @@
 https://www.wikihow.com/Grow-Hydroponic-Mushrooms
 
+https://www.youtube.com/watch?v=7GC-R8xyac0
+
 https://www.greenandvibrant.com/aeroponic-plans
 
 https://gardeningtips.in/growing-hydroponic-corn-a-full-guide
