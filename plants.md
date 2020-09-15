@@ -30,4 +30,6 @@ https://gardeningtips.in/growing-spinach-hydroponically-at-home-a-full-guide
 
 Spinach  https://www.youtube.com/watch?v=29Z80hVBtd4
 
+http://foodinmotion-hydroponics.blogspot.com/2009/04/aeroponic-system-spinach.html
+
 https://gardeningtips.in/growing-wheatgrass-in-hydroponics-diy-wheatgrass
