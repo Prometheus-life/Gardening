@@ -22,6 +22,8 @@ https://agrotonomy.com/aeroponic-beans-peas-on-a-tower-garden/
 
 https://www.doityourself.com/stry/how-to-grow-bell-peppers-hydroponically
 
+https://agrotonomy.com/growing-aeroponic-squash-on-a-tower-garden/
+
 https://thepracticalplanter.com/best-plants-for-aeroponics/
 
 https://university.upstartfarmers.com/blog/grow-classic-rosemary-in-hydroponics
