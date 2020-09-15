@@ -6,6 +6,8 @@ https://wiki.opensourceecology.org/wiki/Compressed_Air_Water_Pump#Assembly_Diagr
 
 https://agrotonomy.com/tower-garden-aeroponic-strawberry/
 
+https://www.aeroponics.com/aero6l.htm
+
 https://gardenerdy.com/aeroponics-vs-hydroponics/
 
 https://aerofarms.com/technology/
