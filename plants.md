@@ -26,6 +26,8 @@ https://thepracticalplanter.com/best-plants-for-aeroponics/
 
 https://university.upstartfarmers.com/blog/grow-classic-rosemary-in-hydroponics
 
+https://agrotonomy.com/growing-aeroponic-cucumbers-on-a-tower-garden/
+
 http://www.herbgardening.com/howtogrowherbsinhyrdoponics.htm
 
 https://gardeningtips.in/growing-spinach-hydroponically-at-home-a-full-guide
